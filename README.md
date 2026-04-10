@@ -1,0 +1,1 @@
+# Ckeck-list-aquisi-o-de-empresas
